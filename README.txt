@@ -3,3 +3,5 @@ My name is Todd Stelling. I am interested in researching the effects of ocean ac
 
 
 Kyrie was here lol
+
+My name is Adam Konopka and I study cows 
